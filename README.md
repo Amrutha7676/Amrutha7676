@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me:To become a software developer
 I'm currently learning<br>
 
 
